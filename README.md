@@ -44,4 +44,38 @@ Porque no tenemos un Steve Jobs en Latinoamérica -Cultura social y legal que no
 
 <blockquote>Estamos entrando en un periodo de transformación digital</blockquote>
 
+Silicon Valley, norte de California y centro de la innovación a nivel mundial, donde se concentran varias compañías de alta tecnología. Quería descubrir cuál era el secreto de este lugar para acoger tanta innovación y aunque al respecto tenía muchas teorías, lo mejor era revelar la correcta. Para esto me encontré con Wadhwa, un hombre con vestimenta poco formal, vicepresidente de innovación e investigación de Singularity University, un espacio poco ostentoso que solía ser un lugar militar.
 
+Silicon Valley, norte de California y centro de la innovación a nivel mundial, donde se concentran varias compañías de alta tecnología. Quería descubrir cuál era el secreto de este lugar para acoger tanta innovación y aunque al respecto tenía muchas teorías, lo mejor era revelar la correcta. Para esto me encontré con Wadhwa, un hombre con vestimenta poco formal, vicepresidente de innovación e investigación de Singularity University, un espacio poco ostentoso que solía ser un lugar militar.
+
+---------------------------------------------------------------------------------------------------
+
+## EL SECRETO ES LA GENTE
+
+El secreto no está en los incentivos económicos, ni parques tecnológicos, ni científicos no se basa en eso, si no que el secreto es el tipo de gente que tenga la capacidad, que este concentrada en el trabajo, se necesitan mentes creativas de todo el mundo, que llegan atraídas por el ambiente de aceptación a la diversidad étnica, cultural y hasta sexual.
+
+---------------------------------------------------------------------------------------------------
+
+## EL POTENCIAL DE AMERICA LATINA
+
+Lo más importante para incentivar la innovación era ofrecer estímulos económicos o reducir las trabas burocráticas o tener un buen negocio. Y hoy en día lo más importante es contar con personas con mentes creativas respaldada por buenos sistemas educativos. En el país hay personas con talentos, artistas, inventores y emprendedores que tienen la idea de procrear cosas nuevas para el país, pero por lo que se ve es que en el país existe la burocracia infernal, la corrupción y el mal negocio y así es muy difícil de crear una empresa innovadora.
+
+---------------------------------------------------------------------------------------------------
+
+## Los innovadores quieren vivir en lugares vibrantes
+
+La realidad es que la creatividad es un proceso social; los más grandes avances vienen de la gente de la que aprenden, de la gente con la que se colabora, y las ciudades son verdaderas fuentes de creatividad.
+
+Las mentes innovadoras tienden a juntarse en lugares que les permiten trabajar fuera de las reglas de las corporaciones tradicionales, fuera de la burocracia, allí donde pueden controlar los medios de producción y donde les ofrecen capital y no deuda.
+
+---------------------------------------------------------------------------------------------------
+
+## EL MUNDO DEL FUTURO
+
+Si varios países latinoamericanos ya tienen grandes reservas de mentes creativas, que son la condición esencial para las sociedades innovadoras, su gran desafío será mejorar la calidad y la inserción en el  mundo de sus sistemas educativos y crear sistemas legales más tolerantes con el fracaso empresarial.
+
+---------------------------------------------------------------------------------------------------
+
+## LOS MOTORES DE LA INNOVACION
+
+El factor clave, del que se habla mucho, y sin el cual es difícil producir sociedades innovadoras, es una cultura de tolerancia social con el fracaso individual.
